@@ -4,7 +4,7 @@
   
   
 ### Contact me?
-- [E-mail: misaka12456@arcaea.moe](mailto:misaka12456@arcaea.moe)
+- [E-mail: main@misakacastle.moe](mailto:main@misakacastle.moe)
 - [Twitter: 御坂12456(@misaka_12456)](https://twitter.com/@misaka_12456)
 - Discord: 御坂12456#3799
 - [Telegram: 御坂12456](https://t.me/Misaka12456)
